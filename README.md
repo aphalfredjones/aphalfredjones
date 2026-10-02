@@ -1,16 +1,33 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**aphalfredjones/aphalfredjones** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
-Here are some ideas to get you started:
+　　꒰      Ⳋ᧙      Alfred jones !       ˖
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+　　⋮  ⌗         American and awesome ㅤ‧  ˚
+
+  ୭      15-16    ˚      Alfred kin doubles r alright.        ᵎᵎ
+
+　　𓎟𓎟     My partners awesome yes d’aww       ⸝⸝ㅤ      ˎˊ˗
+
+</div>
+
+<p align="center">
+  <img src="./IMG_4588.jpeg" width="700">
+</p>
+
+<div align="center">
+
+⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+
+. . ۶ৎ  I’m usually with my partner idk dude ֶ   ೀ　
+
+؛  ♡ ꒰🍔 ꒱ no dni  ᛝ
+
+𓏵 i love burgers  ﹙﹚ nuclear x spade and mexame is CANON Cus i said so ˎˊ
+
+</div>
+
+<p align="center">
+  <img src="./IMG_4585.jpeg" width="700">
+</p>
